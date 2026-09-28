@@ -1,0 +1,1 @@
+The program is a bit slow but it's fun!Download the .html and double click it and there you go! I love pasta for example so show your pasta on live camera and a message will pop up..Μακαρόνια ή τίποτα.
